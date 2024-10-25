@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @AlexannderGotThaApp
+- 👀 I’m interested in making programs
+- 🌱 I’m currently learning the luau language.
+- 📫 How to reach me; I have an discord named "thecoolpest"
+- 😄 Pronouns: Him/His
+- ⚡ Fun fact: You count air in L's, like 5L
