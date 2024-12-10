@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning the luau language.
 - 📫 How to reach me; I have an discord named "thecoolpest"
 - 😄 Pronouns: Him/His
-- ⚡ Fun fact: You count air in L's, like 5L
+- ⚡ Fun fact: You count air in Liters, like 5L
